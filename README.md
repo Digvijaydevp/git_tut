@@ -1,1 +1,3 @@
-Its a long way road..
+It's a long way road....
+
+surviving long enough
